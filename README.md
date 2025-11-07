@@ -1,5 +1,5 @@
 # Fast and Furious
-![Fast and Furious posterhttps://resizing.flixster.com/RYaXF6wKOa0WI2I2lY2DGkvWOgk=/ems.cHJkLWVtcy1hc3NldHMvbW92aWVzLzdhYTRiMjQ1LWMyMDctNGM1MC1iYzY3LWIzM2VhNmU0MTlkOC5qcGc=]
+
 **Genre** action, Crime
 **Characters**Vin diesel
 # Fast and Furious Sypnosis
